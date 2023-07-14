@@ -7,11 +7,6 @@ Now prepare yourselves *to witness the reasons as to why I enjoy gaming*
 * The games that I chosen are visually pleasing to the eyes with a great sound track to accompany them. It's even customizable to the point where i could turn down any volume i want so i can listen to my own music or videos in the background
 * I can even gift some of the games i have to my friends so i won't have to experience them alone if i want, which creates a great outlet for communication on my downtime while having fun
 
+***
 
 ![alt text](https://assets.rockpapershotgun.com/images/2019/09/steam-library-3.jpg)
-
-
-
-
-
-[theme:] (midnight)
