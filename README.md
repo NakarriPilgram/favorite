@@ -8,6 +8,7 @@ Now prepare yourselves *to witness the reasons as to why I enjoy gaming*
 * I can even gift some of the games i have to my friends so i won't have to experience them alone if i want, which creates a great outlet for communication on my downtime while having fun
 
 
+![alt text](https://assets.rockpapershotgun.com/images/2019/09/steam-library-3.jpg)
 
 
 
