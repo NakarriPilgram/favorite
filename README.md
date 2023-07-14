@@ -13,4 +13,4 @@ Now prepare yourselves *to witness the reasons as to why I enjoy gaming*
 
 
 
-theme: midnight
+[theme:] (midnight)
