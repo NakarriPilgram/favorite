@@ -13,6 +13,4 @@ Now prepare yourselves *to witness the reasons as to why I enjoy gaming*
 
 
 
-remote_theme: pages-themes/midnight@v0.2.0
-plugins:
-- jekyll-remote-theme
+theme: midnight
